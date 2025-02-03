@@ -1,2 +1,5 @@
-Victor Cosmas
-J17-1239-2022
+Computer Sciencist 
+Crypto Enthusiast
+Web designer & developer
+Programmer
+
